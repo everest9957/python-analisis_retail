@@ -255,7 +255,7 @@ Judit Giravent
 
 LinkedIn: tu-perfil
 
-GitHub: @jdthgp27
+GitHub: @everest9957
 
 
 🙏 Agradecimientos
